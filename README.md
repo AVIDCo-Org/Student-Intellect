@@ -1,1 +1,1 @@
-# Student-Intellect
+# Student Intellect
